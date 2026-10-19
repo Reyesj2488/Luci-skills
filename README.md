@@ -1,3 +1,4 @@
+resume for oilfield workpver jobs
 <!-- TODO: banner / logo -->
 
 # Luci Skills
